@@ -4,7 +4,7 @@
 
 🚀 Passionate about building impactful, scalable, and user-friendly solutions  
 🎯 Skilled in Java, Python, UI/UX, and modern web development  
-🤖 AI Intern @ Infosys | Figma + NPTEL Certified | IoT Innovator
+🤖 AI Intern @ Infosys Pragathi C4 | Figma + NPTEL Certified | IoT Innovator
 
 ---
 
